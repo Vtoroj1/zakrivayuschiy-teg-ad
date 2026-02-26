@@ -1,1 +1,1 @@
-https://github.com/Vtoroj1/zakrivayuschiy-teg-ad
+https://vtoroj1.github.io/zakrivayuschiy-teg-ad/
